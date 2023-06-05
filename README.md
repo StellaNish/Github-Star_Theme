@@ -1,1 +1,1 @@
-# http://Github-Star_Theme
+# http://Star_Theme
